@@ -17,4 +17,3 @@ ships ;; i love icyago and radioapple (sorry. sigh)!! im a fan of most helluvers
 ; - i get really upset when hellaverse fans prove to be not very media literate.. so im sorry if you see me getting really mad for no reason ૮(˶ㅠ︿ㅠ)ა
 
 
-<img width="235.8" height="401" alt="IMG_7153" src="https://github.com/user-attachments/assets/ca74308d-168e-4bd1-bac7-ad51bbdd7059" />
