@@ -27,6 +27,8 @@ ships ;; i love icyago and radioapple (sorry. sigh)!! also i love chaggie, stati
 
 disney! my all time favorite movie is Who Framed Roger Rabbit! (hes so me).. i also LOVE the goofy movies and im pretty sure im max goofs number one fan… i also know EVERYTHING about the disney parks!! (shout out maxley)
 
+i really like musicals. my favorite is falsettos! i also love nunsense, little shop (with jeremy jordan and christian borle specifically), spongebob the musical, something rotten and newsies!!
+
 sonic!! i have a huuuuge sonic collection irl, and i have a bunch of sonic cosplays..
 
 speaking of, i also cosplay! you can see some of my stuff on my tiktok or my instagram thats linked on my profile. ive been cosplaying for 7 years 
