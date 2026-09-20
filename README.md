@@ -11,7 +11,8 @@
 
 
 
-ships ;; i love icyago and radioapple (sorry. sigh)!! im a fan of most helluverse ships (within reason) besides radiostatic and stolassago, really
+ships ;; i love icyago and radioapple (sorry. sigh)!! also i love chaggie, staticmoth, emilute, stolitz, straz, adamsapple (occasionally),  and honeymoon!
+— i hate to say it but i really hate radiostatic.. please do not talk to me about radiostatic or stolassago,,,
 
 
 ; - i get really upset when hellaverse fans prove to be not very media literate.. so im sorry if you see me getting really mad for no reason ૮(˶ㅠ︿ㅠ)ა
@@ -28,4 +29,7 @@ disney! my all time favorite movie is Who Framed Roger Rabbit! (hes so me).. i a
 
 sonic!! i have a huuuuge sonic collection irl, and i have a bunch of sonic cosplays..
 
-speaking of, i also cosplay! you can see some of my stuff on my tiktok or my instagram thats linked on my profile 
+speaking of, i also cosplay! you can see some of my stuff on my tiktok or my instagram thats linked on my profile. ive been cosplaying for 7 years 
+
+im into a bunch of animes.. beastars, black butler, devilman crybaby, ouran high school host club.. literally so many. ask me about it!
+
