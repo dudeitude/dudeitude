@@ -11,3 +11,5 @@
 
 
 
+ships ;; i love icyago and radioapple !! im a fan of most helluverse ships besides radiostatic and stolassago, really
+; - i get really upset when hellaverse fans prove to be not very media literate.. so im sorry if you see me getting really mad for no reason
