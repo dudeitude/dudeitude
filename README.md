@@ -18,3 +18,14 @@ ships ;; i love icyago and radioapple (sorry. sigh)!! im a fan of most helluvers
 
 
 <img width="480" height="270" alt="IMG_1094" src="https://github.com/user-attachments/assets/1b80b4d5-3450-433a-8083-979b76bd987a" />
+
+
+── ⋆⋅☆⋅⋆ ──
+
+truthfully, i am into a lot of things! hellaverse is my special interest but i am also super into..
+
+disney! my all time favorite movie is Who Framed Roger Rabbit! (hes so me).. i also LOVE the goofy movies and im pretty sure im max goofs number one fan…
+
+sonic!! i have a huuuuge sonic collection irl, and i have a bunch of sonic cosplays..
+
+speaking of, i also cosplay! you can see some of my stuff on my tiktok or my instagram thats linked on my profile 
