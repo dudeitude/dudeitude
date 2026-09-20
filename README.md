@@ -35,4 +35,6 @@ im into a bunch of animes.. beastars, black butler, devilman crybaby, ouran high
 
 deltarune and undertale! ive played both of these games a hundred times and can talk about them for hours.. i love kerdly, alphyne, papyton, sansby, krusie, spamtenna and cariel !! 
 
+⋆.˚ ☾⭒.˚
 
+;; ok bye !!
