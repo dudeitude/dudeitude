@@ -11,9 +11,6 @@
 
 
 
-ships ;; i love icyago and radioapple (sorry. sigh)!! also i love chaggie, staticmoth, emilute, stolitz, straz, adamsapple (occasionally),  and honeymoon!
-— i hate to say it but i really hate radiostatic.. please do not talk to me about radiostatic or stolassago,,,
-
 
 ; - i get really upset when hellaverse fans prove to be not very media literate.. so im sorry if you see me getting really mad for no reason ૮(˶ㅠ︿ㅠ)ა
 
