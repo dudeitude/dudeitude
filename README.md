@@ -28,7 +28,7 @@ i really like musicals. my favorite is falsettos! i also love nunsense, little s
 
 sonic!! i have a huuuuge sonic collection irl, and i have a bunch of sonic cosplays..
 
-speaking of, i also cosplay! you can see some of my stuff on my tiktok or my instagram thats linked on my profile. ive been cosplaying for 7 years 
+speaking of, i also cosplay! you can see some of my stuff on my tiktok or my instagram thats linked on my readme. ive been cosplaying for 7 years 
 
 im into a bunch of animes.. beastars, black butler, devilman crybaby, ouran high school host club.. literally so many. ask me about it!
 
