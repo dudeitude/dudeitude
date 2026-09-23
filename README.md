@@ -7,7 +7,8 @@
 
 ;; im usually sitting with friends, but if im not busy, i usually would really like to talk! i would also roleplay but i havent in a really long time so i might be kind of awkward.. 
 
-<img width="210" height="210" alt="4F534071-A66B-47B2-B786-25666ABCE917" src="https://github.com/user-attachments/assets/702ba239-fd01-4c63-922e-6b6de3ee7f41" />
+<img width="540" height="308" alt="4C4A709D-FB83-44F9-A96A-73D8FC6C1BF7" src="https://github.com/user-attachments/assets/71785814-334f-42cd-b754-f26297dce4b9" />
+
 
 
 
