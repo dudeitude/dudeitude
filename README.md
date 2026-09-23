@@ -7,7 +7,6 @@
 
 ;; im usually sitting with friends, but if im not busy, i usually would really like to talk! i would also roleplay but i havent in a really long time so i might be kind of awkward.. 
 
-<img width="540" height="308" alt="4C4A709D-FB83-44F9-A96A-73D8FC6C1BF7" src="https://github.com/user-attachments/assets/71785814-334f-42cd-b754-f26297dce4b9" />
 
 
 
@@ -34,6 +33,9 @@ speaking of, i also cosplay! you can see some of my stuff on my tiktok or my ins
 im into a bunch of animes.. beastars, black butler, devilman crybaby, ouran high school host club.. literally so many. ask me about it!
 
 deltarune and undertale! ive played both of these games a hundred times and can talk about them for hours.. i love kerdly, alphyne, papyton, sansby, krusie, spamtenna and cariel !! 
+
+<img width="540" height="308" alt="4C4A709D-FB83-44F9-A96A-73D8FC6C1BF7" src="https://github.com/user-attachments/assets/c80ab074-c42e-4d14-95e0-4a39b227752e" />
+
 
 ⋆.˚ ☾⭒.˚
 
