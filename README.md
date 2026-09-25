@@ -1,7 +1,7 @@
 ## owl in a cage !
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
  
-;; hi im damien (or max) ! i really like the goetias and lucifer !! 
+;; hi im max (or damien) ! i really like the goetias and lucifer !! 
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=57uy7yjt4yfbo18tjhs15myl4&redirect=true">
