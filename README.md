@@ -2,6 +2,7 @@
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
  
 ;; hi im max (or damien) ! i really like the goetias and lucifer !! 
+- strictly no they/them pronouns on me. 
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=57uy7yjt4yfbo18tjhs15myl4&redirect=true">
