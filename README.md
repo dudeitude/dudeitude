@@ -1,7 +1,7 @@
 ## owl in a cage !
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
  
-;; hi im max (or damien) ! i really like the goetias and lucifer !! 
+;; hi im max (or damien) !
 - strictly no they/them pronouns on me. 
 
 <p align="center">
