@@ -27,9 +27,9 @@
 
 ── ⋆⋅☆⋅⋆ ──
 
-;; truthfully, i am into a lot of things! hellaverse is my special interest but i am also super into..
+;; truthfully, i am into a lot of things! my main fandoms are …
 
-disney! my all time favorite movie is Who Framed Roger Rabbit! (hes so me).. i also LOVE the goofy movies and im pretty sure im max goofs number one fan… i also know EVERYTHING about the disney parks!! (shout out maxley)
+disney! my all time favorite movie is Who Framed Roger Rabbit! (hes so me).. i also LOVE the goofy movies and im pretty sure im max goofs number one fan… i also know EVERYTHING about the disney parks!! (shout out maxley) AND I LOOOVE KINGDOM HEARTS1!1!
 
 i really like musicals. my favorite is falsettos! i also love nunsense, little shop (with jeremy jordan and christian borle specifically), spongebob the musical, something rotten and newsies!!
 
