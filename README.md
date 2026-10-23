@@ -19,7 +19,7 @@
 
 
 
-; - i get really upset when hellaverse fans prove to be not very media literate.. so im sorry if you see me getting really mad for no reason ૮(˶ㅠ︿ㅠ)ა ;; hellaverse iwc please 
+; -  ૮(˶ㅠ︿ㅠ)ა ;; hellaverse iwc please 
 
 <p align="center">
 <img width="480" height="270" alt="IMG_1094" src="https://github.com/user-attachments/assets/1b80b4d5-3450-433a-8083-979b76bd987a" />
@@ -27,19 +27,8 @@
 
 ── ⋆⋅☆⋅⋆ ──
 
-;; truthfully, i am into a lot of things! my main fandoms are …
+;; truthfully, i am into a lot of things! so please check out my strawpage to learn a lil more 
 
-disney! my all time favorite movie is Who Framed Roger Rabbit! (hes so me).. i also LOVE the goofy movies and im pretty sure im max goofs number one fan… i also know EVERYTHING about the disney parks!! (shout out maxley) AND I LOOOVE KINGDOM HEARTS1!1!
-
-i really like musicals. my favorite is falsettos! i also love nunsense, little shop (with jeremy jordan and christian borle specifically), spongebob the musical, something rotten and newsies!!
-
-sonic!! i have a huuuuge sonic collection irl, and i have a bunch of sonic cosplays..
-
-speaking of, i also cosplay! you can see some of my stuff on my tiktok or my instagram thats linked on my readme. ive been cosplaying for 7 years 
-
-im into a bunch of animes.. beastars, black butler, devilman crybaby, ouran high school host club.. literally so many. ask me about it!
-
-deltarune and undertale! ive played both of these games a hundred times and can talk about them for hours.. i love kerdly, alphyne, papyton, sansby, krusie, spamtenna and cariel !! 
 
 <p align="center">
 <img width="540" height="308" alt="4C4A709D-FB83-44F9-A96A-73D8FC6C1BF7" src="https://github.com/user-attachments/assets/c80ab074-c42e-4d14-95e0-4a39b227752e" />
