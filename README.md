@@ -2,7 +2,7 @@
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
  
 ;; hi im max (or damien) !
-- strictly no they/them pronouns on me. 
+- strictly no they/them pronouns on me pls
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=57uy7yjt4yfbo18tjhs15myl4&redirect=true">
@@ -21,8 +21,6 @@
 
 ; -  ૮(˶ㅠ︿ㅠ)ა ;; hellaverse iwc please #ihatestolas
 
-<p align="center">
-<img width="480" height="270" alt="IMG_1094" src="https://github.com/user-attachments/assets/1b80b4d5-3450-433a-8083-979b76bd987a" />
 
 
 ── ⋆⋅☆⋅⋆ ──
